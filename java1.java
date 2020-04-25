@@ -1,3 +1,0 @@
-china
-haha
-Hello
